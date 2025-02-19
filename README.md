@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rulesmash
 - 👀 I’m interested in ...3d modelling, programming
 - 🌱 I’m currently learning ...ai&mL & electrical&electronics
-- 💞️ I’m looking to collaborate on ... python projects
+- 💞️ I’m looking to collaborate on ... python and C projects
 - 📫 How to reach me : instagram @aa_leaf007
