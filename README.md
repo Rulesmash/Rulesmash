@@ -2,4 +2,4 @@
 - 👀 I’m interested in ...3d modelling, programming
 - 🌱 I’m currently learning ...ai&mL & electrical&electronics
 - 💞️ I’m looking to collaborate on ... python and C projects
-- 📫 How to reach me : instagram @aa_leaf007
+- 📫 How to reach me : [instagram](https://www.instagram.com/aa_leaf007)
