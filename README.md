@@ -30,6 +30,6 @@ You can find my verified professional profiles and community links below:
 
 * **LinkedIn:** [linkedin.com/in/aalif-mohammad-r-s](https://www.linkedin.com/in/aalif-mohammad-r-s)
 * **Community:** Join the conversation at **Hustle with Chai** [instagram.com/hustle_with_chai.official](https://www.instagram.com/hustle_with_chai.official)
-* **Portfolio/Projects:** *[Optional: Add your link here if you have a portfolio site or personal blog]*
+* **Linktree:** *[linktr.ee/AalifMohammadRS](https://linktr.ee/AalifMohammadRS)*
 
 *“Understanding and application are miles apart from pure CGPA.”*
